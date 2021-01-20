@@ -21,7 +21,7 @@ Here is the composition of the Members of the NSA 2021
 ⭐ - OpX
 ⭐ - Azura
 ⭐ - Saita
-⭐ - Pr0xy (22)
+⭐ - wasp
 ⭐ - Wqz
 ⭐ - Walter
 ⭐ - Granola

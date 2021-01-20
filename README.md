@@ -1,16 +1,26 @@
-### Hi there 👋
+# ![#teamnsa](https://github.com/TeamNSA/TeamNSA/blob/main/banner.png)
 
-<!--
-**TeamNSA/TeamNSA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+═════════════════════════════════════════════════════════════════════════════
 
-Here are some ideas to get you started:
+👋 Welcome to the Official NSA GitHub (Team Discord), Account managed by @ Pr0dic4te @Privility and @Ketama
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+We repost all our creations whether from our Members or Leaders
+
+Here is the composition of the Members of the NSA 2021
+
+═════════════════════════════════════════════════════════════════════════════
+
+👑 - @Pr0dic4te
+👑 - @Privility
+👑 - @Ketaama
+
+⭐ - Shitano
+⭐ - Koma
+⭐ - Lunatic
+⭐ - Rabak
+⭐ - OpX
+⭐ - Azura
+⭐ - Saita
+⭐ - Pr0xy (22)
+⭐ - Wqz
+⭐ - Walter
